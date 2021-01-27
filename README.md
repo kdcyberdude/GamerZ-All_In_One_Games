@@ -4,7 +4,7 @@ Play Store: https://play.google.com/store/apps/details?id=kd.gamerz
 
 <br/>
 
-[![Watch the video](GamerZGIF.gif)](https://youtu.be/PJeo4UOhPHQ)
+[![Watch the video](GamerZGIF.gif)](https://youtu.be/hFcwtnbrshg)
 
 <br/>
 
